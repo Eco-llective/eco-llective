@@ -13,7 +13,9 @@ Bundroid | It/Its | Robot + Rabbit otherkin | Ninjago + Gorillaz fan | the reaso
 </p>
 
 <p align=center>
-Foxtrot | He/It/They | fox therian... obvi | CreepyPasta enjoyer... :P 
+Foxtrot | He/It/They | fox therian... obvi | CreepyPasta enjoyer... :P <br>
+<img width="64" height="70" alt="pony-town-_FoxTrot_ _ _Sona_ _ _SYS_-stand-padded-1x" src="https://github.com/user-attachments/assets/0df3f1a1-6323-4495-ba9a-6ab5f0fba565" />
+
 </p>
 
 <p align=center>
