@@ -37,13 +37,15 @@ Stogzo | He/Its | dog & deer therian | Gachiakuta, Alien Stage, and Stargate fan
 </p>
 
 <p align=center>
-  <a href="https://www.tumblr.com/cryingmyselftosleeptonight/797689512945958912/look-at-him-dangggg-stamp-esgue-graphic-template?source=share">
-    <img src="https://64.media.tumblr.com/a33fa5a0e04fa3aa0099877a5d729420/19cd4e183070328b-3a/s250x400/cbeb1b624df35989e6b15a30b21afb874623db1b.pnj" />
+  <a href="https://www.tumblr.com/eco-collective/805247271704952832/4-super-basic-low-effort-stamps-for-3-fandoms?source=share">
+    <img width="177" height="100" src="https://64.media.tumblr.com/3f3d67bdc08b2a4173b1ffa6e171e9dc/bb5a861827cd5295-8f/s400x600/e9e1658fb20cc771b6f99004cf269f00737d6582.pnj" />
   </a>
     
   <a href="https://www.tumblr.com/daikitakao/780209147061862400/sua-stamps-f2u?source=share">
     <img width="177" height="100" src="https://64.media.tumblr.com/6fe845f07284545a0d16e4f4e3c22d62/2680531e62354aa8-a0/s100x200/19bbe4e92d188b104e05e71b9751b39de440d451.pnj" />
   </a> 
+    <a href="https://www.tumblr.com/eco-collective/805247271704952832/4-super-basic-low-effort-stamps-for-3-fandoms?source=share">
+    <img width="177" height="100" src="https://64.media.tumblr.com/1910d5a5e82b089e50ccdb5e8c8cad21/bb5a861827cd5295-e6/s400x600/18d23cb4d22d2f2e262c5b5405198ae6730ac8fd.pnj" />
 </p>
 
 <BR>
@@ -60,8 +62,8 @@ Stogzo | He/Its | dog & deer therian | Gachiakuta, Alien Stage, and Stargate fan
 Bundroid | It/Its | Robot + Rabbit otherkin | Ninjago + Gorillaz fan | the reason we're running out of slots because it made over 20 NINJAGO PONIES...<br>
 </p>
 <p align=center>
-<a href=https://www.tumblr.com/kronofobia/788691207674003456/i-have-some-more-silly-stamps-on-my-toyhouse-if?source=share>
-    <img width="177" height="100" src="https://64.media.tumblr.com/5714610bc02503b4a02455a46907e860/77f604fff7323b95-ca/s250x400/88ca375118a4f4299c50c16f54f24cb5ab88dc7e.pnj"/>
+<a href="https://www.tumblr.com/eco-collective/805247271704952832/4-super-basic-low-effort-stamps-for-3-fandoms?source=share">
+    <img width="177" height="100" src="https://64.media.tumblr.com/e51bf9a7e95ed2bd286c78c9b3c1b539/bb5a861827cd5295-e0/s400x600/b89149bf530f2b76fe00e80c4dbe92ab20d7c0b3.pnj"/>
 </a>
     <a href="https://www.tumblr.com/mrmeltingpoint/802618806982819840/oh-by-the-way-heres-some-2d-stamps-i-made-for-my?source=share">
         <img width="177" height="100" src="https://64.media.tumblr.com/5a313209bafb35a967f9c23169a9c76a/5e397f4219d38786-cc/s100x200/1a52e29cbcfc68e8158e412be38e5b0c8b17dfe7.gifv"/>
