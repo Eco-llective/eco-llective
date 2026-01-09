@@ -1,5 +1,5 @@
 <p align=center>
-    <b> CLICK PONIES 4 TUMBLR</b><br>
+    <b> CLICK PONIES 4 TUMBLR | CLICK GRAPHICS 4 CREDIT</b><br><br>
 <B>- COLLECTIVE INFO -</B> <br>
 It/Its prns | 18 <br>
 v Shared Sona v <br>
