@@ -20,18 +20,19 @@ v Shared Sona v <br>
 <b>- Member Info - </b>
 </p>
 
-<p align=center>
-<a href="https://www.tumblr.com/stogzo-the-mediocre">
-<img width="162" height="183" alt="pony-town-Stogzo __ Sona-stand-padded-3x" src="https://github.com/user-attachments/assets/4a7ff6f6-e2b8-4312-a2da-94b35688255d" />
-</a>
-
 <BR>
 <p align=center> 
    -- BETTER DIVIDER COMING SOON --
 </p>
 <BR>
-    
-<br>
+
+<p align=center>
+<a href="https://www.tumblr.com/stogzo-the-mediocre">
+<img width="162" height="183" alt="pony-town-Stogzo __ Sona-stand-padded-3x" src="https://github.com/user-attachments/assets/4a7ff6f6-e2b8-4312-a2da-94b35688255d" />
+</a>
+</p>
+
+<p align=center>
 Stogzo | He/Its | dog & deer therian | Gachiakuta, Alien Stage, and Stargate fan | gay ass clown<br>
 </p>
 
