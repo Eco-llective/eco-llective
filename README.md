@@ -50,8 +50,8 @@ Stogzo | He/Its | dog & deer therian | Gachiakuta, Alien Stage, and Stargate fan
   <a href="https://www.tumblr.com/weblily/775126814024712193/mizisua-alien-stage-stamps?source=share">
     <img width="177" height="100" src="https://64.media.tumblr.com/8c3deaafe60f67fdfdad70c77ef21953/4db94c20b6a1538b-34/s100x200/2dd637ca88f51d61ee5e91d37828ec13c3db6004.gifv" />
   </a> 
-    <a href="https://www.tumblr.com/eco-collective/805247271704952832/4-super-basic-low-effort-stamps-for-3-fandoms?source=share">
-    <img width="177" height="100" src="https://64.media.tumblr.com/1910d5a5e82b089e50ccdb5e8c8cad21/bb5a861827cd5295-e6/s400x600/18d23cb4d22d2f2e262c5b5405198ae6730ac8fd.pnj" />
+    <a href="https://www.tumblr.com/stogzo-the-mediocre/805257984406110208/made-a-gif-version-of-the-other-stamp-timy?source=share">
+    <img width="177" height="100" src="https://64.media.tumblr.com/4e28ef89ce7e8925aaaa83bbc16caac4/5563fd192fa82f95-1d/s100x200/5bacb268ac66b62246cae22b0fa2eef7073b7071.webp" />
 </p>
 <p align=center>
     <a href= "https://www.tumblr.com/tsunami-of-tears/784860947384795136/forest-witch-dividers?source=share">
