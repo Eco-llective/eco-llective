@@ -1,4 +1,5 @@
 <p align=center>
+    <b> CLICK PONIES 4 TUMBLR</b><br>
 <B>- COLLECTIVE INFO -</B> <br>
 It/Its prns | 18 <br>
 v Shared Sona v <br>
@@ -8,11 +9,20 @@ v Shared Sona v <br>
 </p>
 
 <p align=center>
-<b>- Member Info </b>
+<b>- Member Info - </b>
+</p>
+
+<p align=center>
+<img width="162" height="183" alt="pony-town-Stogzo __ Sona-stand-padded-3x" src="https://github.com/user-attachments/assets/4a7ff6f6-e2b8-4312-a2da-94b35688255d" /><br>
+Stogzo | He/Its | dog & deer therian | Gachiakuta, Alien Stage, and Stargate fan | gay ass clown<br>
 </p>
 <p align=center>
-Stogzo | He/Its | dog & deer therian | Gachiakuta and Stargate fan | gay ass clown<br>
-<img width="162" height="183" alt="pony-town-Stogzo __ Sona-stand-padded-3x" src="https://github.com/user-attachments/assets/4a7ff6f6-e2b8-4312-a2da-94b35688255d" />
+  <a href="https://www.tumblr.com/cryingmyselftosleeptonight/797689512945958912/look-at-him-dangggg-stamp-esgue-graphic-template?source=share">
+    <img src="https://64.media.tumblr.com/a33fa5a0e04fa3aa0099877a5d729420/19cd4e183070328b-3a/s250x400/cbeb1b624df35989e6b15a30b21afb874623db1b.pnj" />
+  </a>
+  <a href="https://www.tumblr.com/daikitakao/780209147061862400/sua-stamps-f2u?source=share">
+    <img width="177" height="100" src="https://64.media.tumblr.com/6fe845f07284545a0d16e4f4e3c22d62/2680531e62354aa8-a0/s100x200/19bbe4e92d188b104e05e71b9751b39de440d451.pnj" />
+  </a> 
 </p>
 
 <p align=center>
