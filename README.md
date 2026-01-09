@@ -70,7 +70,7 @@ Stogzo | He/Its | dog & deer therian | Gachiakuta, Alien Stage, and Stargate fan
 <img width="138" height="189" alt="pony-town-Jane Bundroid  Sona -stand-padded-3x" src="https://github.com/user-attachments/assets/59279706-aa4a-470f-a785-fb0cadb644f1" />
     </a></p>
 <p align=center> 
-Bundroid | It/Its | Robot + Rabbit otherkin | Ninjago + Gorillaz fan | the reason we're running out of slots because it made over 20 NINJAGO PONIES...<br>
+Bundroid | It/Its | Robot + Rabbit otherkin | Ninjago + Gorillaz + Big Top Burger fan | the reason we're running out of slots because it made over 20 NINJAGO PONIES...<br>
 </p>
 <p align=center>
 <a href="https://www.tumblr.com/eco-collective/805247271704952832/4-super-basic-low-effort-stamps-for-3-fandoms?source=share">
