@@ -41,8 +41,8 @@ Stogzo | He/Its | dog & deer therian | Gachiakuta, Alien Stage, and Stargate fan
     <img width="177" height="100" src="https://64.media.tumblr.com/3f3d67bdc08b2a4173b1ffa6e171e9dc/bb5a861827cd5295-8f/s400x600/e9e1658fb20cc771b6f99004cf269f00737d6582.pnj" />
   </a>
     
-  <a href="https://www.tumblr.com/daikitakao/780209147061862400/sua-stamps-f2u?source=share">
-    <img width="177" height="100" src="https://64.media.tumblr.com/6fe845f07284545a0d16e4f4e3c22d62/2680531e62354aa8-a0/s100x200/19bbe4e92d188b104e05e71b9751b39de440d451.pnj" />
+  <a href="https://www.tumblr.com/weblily/775126814024712193/mizisua-alien-stage-stamps?source=share">
+    <img width="177" height="100" src="https://64.media.tumblr.com/8c3deaafe60f67fdfdad70c77ef21953/4db94c20b6a1538b-34/s100x200/2dd637ca88f51d61ee5e91d37828ec13c3db6004.gifv" />
   </a> 
     <a href="https://www.tumblr.com/eco-collective/805247271704952832/4-super-basic-low-effort-stamps-for-3-fandoms?source=share">
     <img width="177" height="100" src="https://64.media.tumblr.com/1910d5a5e82b089e50ccdb5e8c8cad21/bb5a861827cd5295-e6/s400x600/18d23cb4d22d2f2e262c5b5405198ae6730ac8fd.pnj" />
