@@ -1,5 +1,5 @@
 <p align=center>
-    <b> CLICK PONIES 4 TUMBLR | CLICK GRAPHICS 4 CREDIT</b><br><br>
+    <b> CLICK EACH PONY 4 EACH TUMBLR | CLICK GRAPHICS 4 CREDITS</b><br><br>
 </p>
 <p align=center>
     <a href= "https://www.tumblr.com/uzmacchiato/790385154363359233/%F0%96%A7%B7-greencream-divider-set-%F0%96%A7%B7?source=share">
