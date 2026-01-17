@@ -97,7 +97,7 @@ Bundroid | It/Its | Robot + Rabbit otherkin | Ninjago + Gorillaz + Big Top Burge
 <BR>
 
 <p align=center>
-Foxtrot | He/It/They | fox therian... obvi | CreepyPasta enjoyer... :P <br>
+Foxtrot | He/It/They | fox therian... obvi | CreepyPasta and TF2 [worlds most mediocre sniper main] <br>
 <img width="156" height="177" alt="pony-town-_FoxTrot_ _ _Sona_ _ _SYS_-stand-padded-3x" src="https://github.com/user-attachments/assets/61530637-8d44-400c-afb7-609a4682e7bc" />
 </p>
 
